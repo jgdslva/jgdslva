@@ -1,16 +1,17 @@
-### Hi there 👋
+### Ben vindo ao Meu Perfil 👋
 
-<!--
-**jgdslva/jgdslva** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+MEU NOME é JOAO GABRIEl DA SILVA
 
-Here are some ideas to get you started:
+-  estou estudando no 3_ano_ do ano de 2024 
+  
+- SOU CURSADO EM  😄
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- design grafico-na fundacao bradesco
+- Ilustracao -na EBAC
+- roteiro para cinema,televisao e games -EBAC
+
+VOCE PODE ME ENTRAR NO CONTATO 📫 
+- joaogabrielsilva691@ gmail.com
+- numero:(12) 99261-8299
+  
+  ![](https://media1.tenor.com/m/PGEpDsrsYcIAAAAC/luffy-one-piece-anime.gif)
